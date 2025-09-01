@@ -1,5 +1,5 @@
 # 趣味
-- softtenis
+- softtennis
 ## 夢
 - スマホ取られた
 ## 名前
